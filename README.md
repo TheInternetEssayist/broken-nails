@@ -3,3 +3,5 @@ They made little white fissures on the rocks towards the top of the cliff, their
 
 An attempt at portraying thoughts under extreme circumstances.
 Written 16/6/2021.
+
+😵
